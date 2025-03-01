@@ -1,4 +1,4 @@
-# Chaos & Code  
+# Chaos Code && Carnage 
 **Where entropy meets innovation.**  
 
 > *"Order comes from chaos. I am that order."*  
